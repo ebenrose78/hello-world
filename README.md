@@ -1,4 +1,4 @@
 # hello-world
 just another repository
-i like lebron james
-a full moon hovered in the sky
+maybe another way to write diary
+another place , an privite
